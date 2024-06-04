@@ -24,7 +24,7 @@
 
 ## Learn More
 
-Visit our website to learn more about how Allyfy can transform your customer service experience: [Allyfy](https://www.allyfy.chat/?c=300001&cc=20001)
+Visit our website to learn more about how Allyfy can transform your customer service experience: [Allyfy](https://www.allyfy.chat/#/?c=300001&cc=20001)
 
 ---
 
